@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Srluis:grin:
+## Bem-vindo(a) ao perfil do Srluis:
 
  <div>
    <a href="https://github.com/Srlusi">
